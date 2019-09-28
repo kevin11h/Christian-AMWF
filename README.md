@@ -20,3 +20,19 @@ https://www.youtube.com/watch?v=J-_Q1rwl7no
 
 https://www.youtube.com/watch?v=cBPgb-P-4s0
 
+
+## Kate + 8
+Be Blessed Fruitful and Multiply
+https://www.goodreads.com/book/show/7146116-multiple-blessings
+
+Genesis 1:28 God blessed them and said to them, "Be fruitful ...
+
+biblehub.com
+Then God blessed them and said, “Be fruitful and multiply. Fill the earth and govern it. 
+
+## John 3:16 MV
+
+https://www.youtube.com/watch?v=oNsaRWg-LTA&list=LLMKbJLj7j7zM04pvhNiYjIg&index=33&t=0s
+
+## Revelation 19
+https://www.youtube.com/watch?v=JCX6TViSRUI
