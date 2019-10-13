@@ -1,5 +1,10 @@
 # Christian-AMWF
 
+
+https://www.speakingofchina.com/double-happiness/chinese-american-christian-love-story/
+
+
+
 ![](https://static1.squarespace.com/static/5601db15e4b0ba789d6e3b90/t/5601de65e4b01684c0609c70/1442963049451/?format=300w)
 
 https://www.goodreads.com/book/show/22505257-you-and-me-forever
