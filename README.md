@@ -54,3 +54,8 @@ Which of the two did the will of the father?” The chief priests and elders rep
 # Deutoronomy 11:29
 
 When the LORD your God brings you into the land you are entering to possess, you are to proclaim the blessing on Mount Gerizim and the curse on Mount Ebal. 
+
+
+# Revelation 21:4 King James Version (KJV)
+
+4 And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
