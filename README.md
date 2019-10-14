@@ -97,3 +97,8 @@ https://en.wikipedia.org/wiki/Raising_of_the_son_of_the_widow_of_Nain
 
 ![](https://images.findagrave.com/photos/2010/348/16871655_129243637269.jpg)
 https://www.crossway.org/articles/why-does-the-bible-say-so-much-about-widows/
+
+
+The beauty of John 19:26–27 is reflected in the care Jesus had for His mother, as well as the care John provided for her. Scripture clearly teaches the importance of caring for widows and the elderly, something Jesus personally applied during His final hours of His earthly ministry. James, the half-brother of Jesus, would later call such care for widows “pure religion.” “Religion that God our Father accepts as pure and faultless is this: to look after orphans and widows in their distress and to keep oneself from being polluted by the world” (James 1:27).
+
+https://www.gotquestions.org/Jesus-Mary-John.html
