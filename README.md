@@ -111,3 +111,10 @@ John 19:26-27
 When Jesus, therefore, saw his mother, and the disciple standing by, whom he loved, he said to his mother, "Woman, behold, thy son!" After that, he said to the disciple, "Son, behold, thy mother!" And from that hour, that disciple took her unto his own home.
 
 ![](https://alchetron.com/cdn/chiang-fang-liang-18a451b8-4fe9-43f8-bd0e-5b3e1e87afb-resize-750.jpeg_
+
+
+# AMWF Single Daddy
+
+https://www.youtube.com/watch?v=pyMfs9ktaC0
+
+https://miamiherald.typepad.com/worklifebalancingact/2010/02/apollo-ohnos-dad-crazy-or-devoted.html
