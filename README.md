@@ -93,3 +93,7 @@ https://en.wikipedia.org/wiki/Raising_of_the_son_of_the_widow_of_Nain
 
 # 2nd Samuel 12:23 (ESV)
 23 But now he is dead. Why should I fast? Can I bring him back again? I shall go to him, but he will not return to me.”
+
+
+![](https://images.findagrave.com/photos/2010/348/16871655_129243637269.jpg)
+https://www.crossway.org/articles/why-does-the-bible-say-so-much-about-widows/
