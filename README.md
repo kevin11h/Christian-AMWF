@@ -41,3 +41,6 @@ https://www.youtube.com/watch?v=oNsaRWg-LTA&list=LLMKbJLj7j7zM04pvhNiYjIg&index=
 
 ## Revelation 19
 https://www.youtube.com/watch?v=JCX6TViSRUI
+
+
+![](https://i.redd.it/rc5c10o078k31.jpg)
