@@ -59,3 +59,20 @@ When the LORD your God brings you into the land you are entering to possess, you
 # Revelation 21:4 King James Version (KJV)
 
 4 And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
+
+
+https://www.amazon.com/Red-Heart-Chinese-Communists-Revolution/dp/0190640553
+
+![](https://images-na.ssl-images-amazon.com/images/I/51sK-vkYZoL._SX327_BO1,204,203,200_.jpg)
+![](https://66.media.tumblr.com/f42a20643441a6d741c6388f705c1dcf/tumblr_ped1ydh2Q31wcwnzto1_500.jpg)
+https://en.wikipedia.org/wiki/Raising_of_the_son_of_the_widow_of_Nain
+# Luke 7:11-17
+. A young man had died, the only son of his mother, and she was a widow. And a large crowd from the town was with her. 13 And when the Lord saw her, His heart was filled with pity for her, and He said to her, “Do not weep”. 14 Then He walked over and touched the coffin, while the pallbearers stood still. Jesus said to the dead man, “Young man, I say to thee, arise!” And he who was dead, sat up and began to talk, and Jesus gave him back to his mother.
+
+16 Then they all were filled with awe and praised God. And they said, “A great prophet has risen among us”, and “God has visited His people”.
+
+17 This news about Jesus went out through all the country and the surrounding territory.
+
+
+# 2nd Samuel 12:23 (ESV)
+23 But now he is dead. Why should I fast? Can I bring him back again? I shall go to him, but he will not return to me.”
