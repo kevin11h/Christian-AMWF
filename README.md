@@ -66,6 +66,7 @@ https://www.youtube.com/watch?v=JCX6TViSRUI
 
 
 # Matthew 21:31
+## Assange Assured
 Which of the two did the will of the father?” The chief priests and elders replied, “The first one.” Jesus said to them, “I assure you and most solemnly say to you that the tax collectors and the prostitutes will get into the kingdom of God before you.
 ![](https://github.com/kevin11h/Christian-AMWF/blob/master/%E4%B8%8B%E8%BC%89.jpg?raw=true)
 
@@ -74,9 +75,7 @@ Which of the two did the will of the father?” The chief priests and elders rep
 When the LORD your God brings you into the land you are entering to possess, you are to proclaim the blessing on Mount Gerizim and the curse on Mount Ebal. 
 
 
-# Revelation 21:4 King James Version (KJV)
 
-4 And God shall wipe away all tears from their eyes; and there shall be no more death, neither sorrow, nor crying, neither shall there be any more pain: for the former things are passed away.
 
 
 https://www.amazon.com/Red-Heart-Chinese-Communists-Revolution/dp/0190640553
