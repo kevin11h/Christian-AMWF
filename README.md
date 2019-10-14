@@ -44,3 +44,8 @@ https://www.youtube.com/watch?v=JCX6TViSRUI
 
 
 ![](https://i.redd.it/rc5c10o078k31.jpg)
+
+
+
+# Matthew 21:31
+	Which of the two did the will of the father?” The chief priests and elders replied, “The first one.” Jesus said to them, “I assure you and most solemnly say to you that the tax collectors and the prostitutes will get into the kingdom of God before you.
