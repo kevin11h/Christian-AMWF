@@ -66,7 +66,7 @@ https://www.youtube.com/watch?v=JCX6TViSRUI
 
 
 # Matthew 21:31
-## Assange Assured
+## Assange Assured Accounted
 Which of the two did the will of the father?” The chief priests and elders replied, “The first one.” Jesus said to them, “I assure you and most solemnly say to you that the tax collectors and the prostitutes will get into the kingdom of God before you.
 ![](https://github.com/kevin11h/Christian-AMWF/blob/master/%E4%B8%8B%E8%BC%89.jpg?raw=true)
 
