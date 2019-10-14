@@ -42,6 +42,24 @@ https://www.youtube.com/watch?v=oNsaRWg-LTA&list=LLMKbJLj7j7zM04pvhNiYjIg&index=
 ## Revelation 19
 https://www.youtube.com/watch?v=JCX6TViSRUI
 
+# Psalm 139:13-18
+13 For you created my inmost being;
+    you knit me together in my mother’s womb.
+14 I praise you because I am fearfully and wonderfully made;
+    your works are wonderful,
+    I know that full well.
+15 My frame was not hidden from you
+    when I was made in the secret place,
+    when I was woven together in the depths of the earth.
+16 Your eyes saw my unformed body;
+    all the days ordained for me were written in your book
+    before one of them came to be.
+17 How precious to me are your thoughts,[a] God!
+    How vast is the sum of them!
+18 Were I to count them,
+    they would outnumber the grains of sand—
+    when I awake, I am still with you.
+
 
 ![](https://i.redd.it/rc5c10o078k31.jpg)
 
