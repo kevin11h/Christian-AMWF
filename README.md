@@ -102,3 +102,12 @@ https://www.crossway.org/articles/why-does-the-bible-say-so-much-about-widows/
 The beauty of John 19:26–27 is reflected in the care Jesus had for His mother, as well as the care John provided for her. Scripture clearly teaches the importance of caring for widows and the elderly, something Jesus personally applied during His final hours of His earthly ministry. James, the half-brother of Jesus, would later call such care for widows “pure religion.” “Religion that God our Father accepts as pure and faultless is this: to look after orphans and widows in their distress and to keep oneself from being polluted by the world” (James 1:27).
 
 https://www.gotquestions.org/Jesus-Mary-John.html
+
+3. Woman, behold, thy son! Son, behold, thy mother!
+
+Crucifixion depicted as Stabat Mater with the Virgin Mary, Porto Alegre, Brasil, 19th century.
+John 19:26-27
+
+When Jesus, therefore, saw his mother, and the disciple standing by, whom he loved, he said to his mother, "Woman, behold, thy son!" After that, he said to the disciple, "Son, behold, thy mother!" And from that hour, that disciple took her unto his own home.
+
+![](https://alchetron.com/cdn/chiang-fang-liang-18a451b8-4fe9-43f8-bd0e-5b3e1e87afb-resize-750.jpeg_
