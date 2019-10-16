@@ -118,3 +118,10 @@ When Jesus, therefore, saw his mother, and the disciple standing by, whom he lov
 https://www.youtube.com/watch?v=pyMfs9ktaC0
 
 https://miamiherald.typepad.com/worklifebalancingact/2010/02/apollo-ohnos-dad-crazy-or-devoted.html
+
+# Purpose-of-Parables-Financial-Decisions-that-Eternal-Consequences-Character-is-Destiny
+# Parable of the Shrewd Manager
+## Money is a worldly resources a wonderful slave but horrible master
+https://www.youtube.com/watch?v=GEZvbGfYjyY
+
+![](https://camo.githubusercontent.com/273e1ce05f36620d273d39aad8c8811e2209ca71/68747470733a2f2f692e70696e696d672e636f6d2f353634782f66632f35382f34382f66633538343831323932663530306436663563313363613330366338383933372e6a7067)
