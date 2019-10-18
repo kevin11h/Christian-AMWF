@@ -125,3 +125,6 @@ https://miamiherald.typepad.com/worklifebalancingact/2010/02/apollo-ohnos-dad-cr
 https://www.youtube.com/watch?v=GEZvbGfYjyY
 
 ![](https://camo.githubusercontent.com/273e1ce05f36620d273d39aad8c8811e2209ca71/68747470733a2f2f692e70696e696d672e636f6d2f353634782f66632f35382f34382f66633538343831323932663530306436663563313363613330366338383933372e6a7067)
+
+# fB soul searching francis chan
+https://www.youtube.com/watch?v=QcfSUqnlFOU
