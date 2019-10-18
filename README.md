@@ -128,3 +128,9 @@ https://www.youtube.com/watch?v=GEZvbGfYjyY
 
 # fB soul searching francis chan
 https://www.youtube.com/watch?v=QcfSUqnlFOU
+
+# Sermon Jam
+https://www.youtube.com/watch?v=W-pLRM0rgjE
+
+# Forgetten Truth about God - Francis Chan
+Jollibee Job Philippines https://www.youtube.com/watch?v=imocnXZE2LE
