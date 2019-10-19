@@ -134,3 +134,10 @@ https://www.youtube.com/watch?v=W-pLRM0rgjE
 
 # Forgetten Truth about God - Francis Chan
 Jollibee Job Philippines https://www.youtube.com/watch?v=imocnXZE2LE
+
+# Two Women Orpah and Ruth Two Men in the Field Cain Abel David Goliath
+
+Readiness at Any Hour
+…40Two men will be in the field: one will be taken and the other left. 41Two women will be grinding at the mill: one will be taken and the other left. 42Therefore keep watch, because you do not know the day on which your Lord will come
+
+https://pbs.twimg.com/media/DdwZVV-VQAA_IkQ.jpg
