@@ -147,3 +147,6 @@ Readiness at Any Hour
 …40Two men will be in the field: one will be taken and the other left. 41Two women will be grinding at the mill: one will be taken and the other left. 42Therefore keep watch, because you do not know the day on which your Lord will come
 
 https://pbs.twimg.com/media/DdwZVV-VQAA_IkQ.jpg
+
+
+ ttps://external-preview.redd.it/HqQd-Ki_1FRI7lq33vlFDdzKmVEkLCctF5xV_BQwYfo.jpg 
