@@ -9,6 +9,17 @@ Urbana 2015
 https://www.youtube.com/watch?v=dd8cGMgg7RQ
 
 
+# Focus on the Family
+
+
+https://www.youtube.com/watch?v=xOUdwnfET5A
+
+Ephesians 3:14-21 New Living Translation (NLT)
+
+> Paul’s Prayer for Spiritual Growth
+>14 When I think of all this, I fall to my knees and pray to the Father,[a] 15 the Creator of everything in heaven and on >earth.[b] 16 I pray that from his glorious, unlimited resources he will empower you with inner strength through his Spirit. >17 Then Christ will make his home in your hearts as you trust in him. Your roots will grow down into God’s love and keep you >strong. 18 And may you have the power to understand, as all God’s people should, how wide, how long, how high, and how deep >his love is.
+
+
 ## https://www.speakingofchina.com/double-happiness/chinese-american-christian-love-story/
 
 
@@ -153,3 +164,5 @@ https://pbs.twimg.com/media/DdwZVV-VQAA_IkQ.jpg
 
 
  ttps://external-preview.redd.it/HqQd-Ki_1FRI7lq33vlFDdzKmVEkLCctF5xV_BQwYfo.jpg 
+
+
