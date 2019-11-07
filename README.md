@@ -5,7 +5,8 @@
 
 13 Our desire is not that others might be relieved while you are hard pressed, but that there might be equality. 14 At the present time your plenty will supply what they need, so that in turn their plenty will supply what you need. The goal is equality, 15 as it is written: “The one who gathered much did not have too much, and the one who gathered little did not have too little.”
 
-
+# Joni Music Youtube
+https://www.youtube.com/watch?v=JeVbrfL2q2g
 
 
 https://www.youtube.com/watch?v=PdSHDR_hH6Q&t=63s
