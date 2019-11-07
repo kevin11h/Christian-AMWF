@@ -1,5 +1,15 @@
 # Christian-AMWF
 
+2 Corinthians 8:13-15
+> 2 Corinthians 8:13-15 New International Version (NIV)
+
+13 Our desire is not that others might be relieved while you are hard pressed, but that there might be equality. 14 At the present time your plenty will supply what they need, so that in turn their plenty will supply what you need. The goal is equality, 15 as it is written: “The one who gathered much did not have too much, and the one who gathered little did not have too little.”
+
+
+
+
+https://www.youtube.com/watch?v=PdSHDR_hH6Q&t=63s
+
 Invite chen chi
 
 Invite Jennifer
@@ -18,6 +28,8 @@ Ephesians 3:14-21 New Living Translation (NLT)
 
 > Paul’s Prayer for Spiritual Growth
 >14 When I think of all this, I fall to my knees and pray to the Father,[a] 15 the Creator of everything in heaven and on >earth.[b] 16 I pray that from his glorious, unlimited resources he will empower you with inner strength through his Spirit. >17 Then Christ will make his home in your hearts as you trust in him. Your roots will grow down into God’s love and keep you >strong. 18 And may you have the power to understand, as all God’s people should, how wide, how long, how high, and how deep >his love is.
+
+https://en.wikipedia.org/wiki/Manna
 
 
 ## https://www.speakingofchina.com/double-happiness/chinese-american-christian-love-story/
