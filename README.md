@@ -1,5 +1,7 @@
 # Christian-AMWF
 
+Invite Alina
+
 2 Corinthians 8:13-15
 > 2 Corinthians 8:13-15 New International Version (NIV)
 
