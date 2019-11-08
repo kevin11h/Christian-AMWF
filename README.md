@@ -1,5 +1,30 @@
 # Christian-AMWF
 
+## Lakeside Sermon of the Sower's Parable
+https://www.biblegateway.com/passage/?search=Mark+4%3A1-20&version=NIV
+
+### Mark 4:1-20
+> The Parable of the Sower
+4 Again Jesus began to teach by the lake. The crowd that gathered around him was so large that he got into a boat and sat in it out on the lake, while all the people were along the shore at the water’s edge. 2 He taught them many things by parables, and in his teaching said: 3 “Listen! A farmer went out to sow his seed. 4 As he was scattering the seed, some fell along the path, and the birds came and ate it up. 5 Some fell on rocky places, where it did not have much soil. It sprang up quickly, because the soil was shallow. 6 But when the sun came up, the plants were scorched, and they withered because they had no root. 7 Other seed fell among thorns, which grew up and choked the plants, so that they did not bear grain. 8 Still other seed fell on good soil. It came up, grew and produced a crop, some multiplying thirty, some sixty, some a hundred times.”
+
+9 Then Jesus said, “Whoever has ears to hear, let them hear.”
+
+10 When he was alone, the Twelve and the others around him asked him about the parables. 11 He told them, “The secret of the kingdom of God has been given to you. But to those on the outside everything is said in parables 12 so that,
+
+“‘they may be ever seeing but never perceiving,
+    and ever hearing but never understanding;
+otherwise they might turn and be forgiven!’[a]”
+13 Then Jesus said to them, “Don’t you understand this parable? How then will you understand any parable? 14 The farmer sows the word. 15 Some people are like seed along the path, where the word is sown. As soon as they hear it, Satan comes and takes away the word that was sown in them. 16 Others, like seed sown on rocky places, hear the word and at once receive it with joy. 17 But since they have no root, they last only a short time. When trouble or persecution comes because of the word, they quickly fall away. 18 Still others, like seed sown among thorns, hear the word; 19 but the worries of this life, the deceitfulness of wealth and the desires for other things come in and choke the word, making it unfruitful. 20 Others, like seed sown on good soil, hear the word, accept it, and produce a crop—some thirty, some sixty, some a hundred times what was sown.”
+
+
+
+## Leaving
+https://www.youtube.com/watch?v=VyZx_SSOyfI
+
+https://www.youtube.com/watch?v=6CX3Nj8Tk1k
+
+
+
 Invite Alina
 
 2 Corinthians 8:13-15
