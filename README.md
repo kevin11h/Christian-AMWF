@@ -19,12 +19,32 @@ otherwise they might turn and be forgiven!’[a]”
 
 
 ## Leaving
+Matthew 24:35
+Heaven and earth shall pass away, but my words shall not pass away.
+
 https://www.youtube.com/watch?v=VyZx_SSOyfI
+
+Matthew 28:20 and teaching them to obey everything I have commanded you. And surely I am with you always, to the very end of the age.”
 
 https://www.youtube.com/watch?v=6CX3Nj8Tk1k
 
 Follow Me Fishermen "Be Fishers of Men"  Quit your job
 https://www.youtube.com/watch?v=bnxdk9SZUqw
+
+
+Hebrews 13:5 New International Version (NIV)
+
+5 Keep your lives free from the love of money and be content with what you have, because God has said,
+
+“Never will I leave you;
+    never will I forsake you.”
+    
+    6 So we say with confidence,
+
+“The Lord is my helper; I will not be afraid.
+    What can mere mortals do to me?”
+
+https://www.youtube.com/watch?v=6CX3Nj8Tk1k
 
 Invite Alina
 
