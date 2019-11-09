@@ -1,5 +1,7 @@
 # Christian-AMWF
 
+https://www.reddit.com/r/AMWFs/comments/dtjlnj/are_there_asians_in_the_roman_catholic_or_eastern/
+
 ## Lakeside Sermon of the Sower's Parable
 https://www.biblegateway.com/passage/?search=Mark+4%3A1-20&version=NIV
 
