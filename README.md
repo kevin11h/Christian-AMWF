@@ -1,5 +1,10 @@
 # Christian-AMWF
 
+## Father Lift me up 
+https://www.youtube.com/watch?v=UNkENIAERxs
+
+
+
 https://www.reddit.com/r/AMWFs/comments/dtjlnj/are_there_asians_in_the_roman_catholic_or_eastern/
 
 ## Lakeside Sermon of the Sower's Parable
