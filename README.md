@@ -1,5 +1,10 @@
 # Christian-AMWF
 
+##　Ｆｒａｎｃｉｓ　Ｃｈａｎ　ㄥ Money Commentary
+https://www.youtube.com/watch?v=kf-ty33cbU8
+
+
+Youtube to mp4 videos
 ## Father Lift me up 
 https://www.youtube.com/watch?v=UNkENIAERxs
 
@@ -231,6 +236,6 @@ Readiness at Any Hour
 https://pbs.twimg.com/media/DdwZVV-VQAA_IkQ.jpg
 
 
- ttps://external-preview.redd.it/HqQd-Ki_1FRI7lq33vlFDdzKmVEkLCctF5xV_BQwYfo.jpg 
+https://external-preview.redd.it/HqQd-Ki_1FRI7lq33vlFDdzKmVEkLCctF5xV_BQwYfo.jpg 
 
 
