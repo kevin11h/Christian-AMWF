@@ -1,8 +1,9 @@
 # Christian-AMWF
-
 ##　Ｆｒａｎｃｉｓ　Ｃｈａｎ　ㄥ Money Commentary
 https://www.youtube.com/watch?v=kf-ty33cbU8
 
+# Powerful Sermon.  Reviving our hearts for worship  https://www.youtube.com/watch?v=a1X_ev2OILA
+https://youtube.com/watch?pbjreload=10&v=GLPX3BYAGPo
 
 Youtube to mp4 videos
 ## Father Lift me up 
