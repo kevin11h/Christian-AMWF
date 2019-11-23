@@ -3,6 +3,9 @@
 https://www.youtube.com/watch?v=ZIbOHt3LdH4
 >For the eyes of the LORD range throughout the earth to strengthen those whose hearts are fully committed to him.
 
+# John 16:33
+> 33I have told you these things so that in Me you may have peace. In the world you will have tribulation. But take courage; I have overcome the world!”
+
 # Genesis 1:27
 https://www.youtube.com/watch?v=foG48iqvyoo
 > So God created human beings in his own image.  In the image of God he created them; male and female he created them.
