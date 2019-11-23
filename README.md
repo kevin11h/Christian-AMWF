@@ -1,4 +1,9 @@
 # Christian-AMWF
+# 2nd Chronciles 16:9
+https://www.youtube.com/watch?v=ZIbOHt3LdH4
+
+For the eyes of the LORD range throughout the earth to strengthen those whose hearts are fully committed to him.
+
 ##　Ｆｒａｎｃｉｓ　Ｃｈａｎ　ㄥ Money Commentary
 https://www.youtube.com/watch?v=kf-ty33cbU8
 
