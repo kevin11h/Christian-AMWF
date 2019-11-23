@@ -5,6 +5,8 @@ https://www.youtube.com/watch?v=ZIbOHt3LdH4
 
 # Genesis 1:27
 https://www.youtube.com/watch?v=foG48iqvyoo
+> So God created human beings in his own image.  In the image of God he created them; male and female he created them.
+
 
 ##　Ｆｒａｎｃｉｓ　Ｃｈａｎ　ㄥ Money Commentary
 https://www.youtube.com/watch?v=kf-ty33cbU8
