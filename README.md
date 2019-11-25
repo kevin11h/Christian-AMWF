@@ -10,11 +10,23 @@ https://www.youtube.com/watch?v=ZIbOHt3LdH4
 https://www.youtube.com/watch?v=foG48iqvyoo
 > So God created human beings in his own image.  In the image of God he created them; male and female he created them.
 
+# Follower of devil https://www.youtube.com/watch?v=3cCVcy69QPA
 
-##　Ｆｒａｎｃｉｓ　Ｃｈａｎ　ㄥ Money Commentary
+# One Year Bible  https://www.amazon.com/One-Year-Bible-NIV/dp/0842324518
+## https://www.youtube.com/watch?v=FoiYwI9E1fI
+
+# Sing through Bible https://www.museumofthebible.org/book/minutes/314
+
+# Sing through Bible https://www.youtube.com/watch?v=Ak6G8kfIpTU
+https://www.amazon.com/One-Year-Bible-NLT-Book-ebook/dp/B001AS6H1C
+
+＃　1 Year Bible
+https://www.christianbook.com/nlt-one-year-bible-softcover/9781414302041/pd/302045
+
+######　Ｆｒａｎｃｉｓ　Ｃｈａｎ　ㄥ Money Commentary
 https://www.youtube.com/watch?v=kf-ty33cbU8
 
-# Powerful Sermon.  Reviving our hearts for worship  https://www.youtube.com/watch?v=a1X_ev2OILA
+#### Powerful Sermon.  Reviving our hearts for worship  https://www.youtube.com/watch?v=a1X_ev2OILA
 https://youtube.com/watch?pbjreload=10&v=GLPX3BYAGPo
 
 Youtube to mp4 videos
