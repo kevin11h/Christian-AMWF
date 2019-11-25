@@ -23,6 +23,8 @@ https://www.amazon.com/One-Year-Bible-NLT-Book-ebook/dp/B001AS6H1C
 ＃　1 Year Bible
 https://www.christianbook.com/nlt-one-year-bible-softcover/9781414302041/pd/302045
 
+https://ebible.com/questions/5199-what-is-the-significance-of-the-words-aleph-beth-gimel-etc-listed-in-psalm-119
+
 ######　Ｆｒａｎｃｉｓ　Ｃｈａｎ　ㄥ Money Commentary
 https://www.youtube.com/watch?v=kf-ty33cbU8
 
