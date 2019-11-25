@@ -24,6 +24,81 @@ https://www.amazon.com/One-Year-Bible-NLT-Book-ebook/dp/B001AS6H1C
 https://www.christianbook.com/nlt-one-year-bible-softcover/9781414302041/pd/302045
 
 https://ebible.com/questions/5199-what-is-the-significance-of-the-words-aleph-beth-gimel-etc-listed-in-psalm-119
+# Memorize Scripture https://www.youtube.com/watch?v=NJuGw8Cb-n0
+
+> Psalm 119 a
+
+א Aleph
+
+1Blessed are those whose ways are blameless,
+
+who walk according to the law of the Lord.
+
+2Blessed are those who keep his statutes
+
+and seek him with all their heart—
+
+3they do no wrong
+
+but follow his ways.
+
+4You have laid down precepts
+
+that are to be fully obeyed.
+
+5Oh, that my ways were steadfast
+
+in obeying your decrees!
+
+6Then I would not be put to shame
+
+when I consider all your commands.
+
+7I will praise you with an upright heart
+
+as I learn your righteous laws.
+
+8I will obey your decrees;
+
+do not utterly forsake me.
+
+ב Beth
+
+9How can a young person stay on the path of purity?
+
+By living according to your word.
+
+10I seek you with all my heart;
+
+do not let me stray from your commands.
+
+11I have hidden your word in my heart
+
+that I might not sin against you.
+
+12Praise be to you, Lord;
+
+teach me your decrees.
+
+13With my lips I recount
+
+all the laws that come from your mouth.
+
+14I rejoice in following your statutes
+
+as one rejoices in great riches.
+
+15I meditate on your precepts
+
+and consider your ways.
+
+16I delight in your decrees;
+
+I will not neglect your word.
+
+![](https://alittleperspective.com/wp-content/uploads/2014/10/psa-119-105-KJV-pixabay-9x.jpg)
+
+![](https://faithhealth-wpengine.netdna-ssl.com/wp-content/uploads/Psalm119.jpg)
 
 ######　Ｆｒａｎｃｉｓ　Ｃｈａｎ　ㄥ Money Commentary
 https://www.youtube.com/watch?v=kf-ty33cbU8
