@@ -1,4 +1,8 @@
 # Christian-AMWF
+# Silver & Diamonds https://www.amazon.com/Diamonds-Dust-366-Sparkling-Devotions/dp/0310379504
+#https://www.amazon.com/MORE-PRECIOUS-SILVER-DEVOTIONAL-READINGS/dp/B008UZCSUW
+# Teach me to number my days https://www.youtube.com/watch?v=-2oul9dn0JU
+
 # 2nd Chronciles 16:9
 https://www.youtube.com/watch?v=ZIbOHt3LdH4
 >For the eyes of the LORD range throughout the earth to strengthen those whose hearts are fully committed to him.
