@@ -1,4 +1,7 @@
 # Christian-AMWF
+# Proverbs 3:5-6   Proverbs 3:5-6 (NLT) - Trust in the Lord with all your heart; do not depend on your own understanding. Seek his will in all you do, and he will show you which path to take.
+
+ https://www.youtube.com/watch?v=A3WPqHbW5Vg
 # Silver & Diamonds https://www.amazon.com/Diamonds-Dust-366-Sparkling-Devotions/dp/0310379504
 #https://www.amazon.com/MORE-PRECIOUS-SILVER-DEVOTIONAL-READINGS/dp/B008UZCSUW
 # Teach me to number my days https://www.youtube.com/watch?v=-2oul9dn0JU
