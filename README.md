@@ -1,7 +1,9 @@
 # Christian-AMWF
-# Proverbs 3:5-6   Proverbs 3:5-6 (NLT) - Trust in the Lord with all your heart; do not depend on your own understanding. Seek his will in all you do, and he will show you which path to take.
+# https://www.youtube.com/watch?v=wQpVVfktiAw 2 Peter 1:4 Partakers of the Divine Nature
+3His divine power has given us everything we need for life and godliness through the knowledge of Him who called us by His own glory and excellence. 4Through these He has given us His precious and magnificent promises, so that through them you may become partakers of the divine nature, now that you have escaped the corruption in the world caused by evil desires. https://activechristianity.org/what-does-it-mean-to-be-partakers-of-the-divine-nature
 
- https://www.youtube.com/watch?v=A3WPqHbW5Vg
+# Proverbs 3:5-6   Proverbs 3:5-6 (NLT) - Trust in the Lord with all your heart; do not depend on your own understanding. Seek his will in all you do, and he will show you which path to take. https://www.youtube.com/watch?v=A3WPqHbW5Vg
+
 # Silver & Diamonds https://www.amazon.com/Diamonds-Dust-366-Sparkling-Devotions/dp/0310379504
 #https://www.amazon.com/MORE-PRECIOUS-SILVER-DEVOTIONAL-READINGS/dp/B008UZCSUW
 # Teach me to number my days https://www.youtube.com/watch?v=-2oul9dn0JU
